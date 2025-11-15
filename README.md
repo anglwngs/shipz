@@ -1,1 +1,3 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31otkwh4nu2zarxrer6zxzagzlv4&redirect=true)
+honestly js putting my ships out there is buns 💔💔💔💔
+
+if you want to know what i ship then ask! 
