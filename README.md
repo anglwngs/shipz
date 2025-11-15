@@ -1,1 +1,1 @@
-wip
+[![spotify-github-profile](https://spotify-github-profile.Rui.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31otkwh4nu2zarxrer6zxzagzlv4&redirect=true)
