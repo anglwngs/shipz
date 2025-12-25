@@ -1,5 +1,3 @@
-honestly js putting my ships out there is buns 💔💔💔💔
-
-if you want to know what i ship then ask! 
-
-no more spotify music sad
+hi im rui/lunive but i got lesser known names like matt or dolly but only reserved for close ppl.
+also here's my rentry, https://rentry.co/mattengardee
+ok? ok.
